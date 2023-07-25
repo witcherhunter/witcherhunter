@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **amirhosseinsharafdoost@outlook.com**
 
-- 📄 Know about my experiences [https://cvbuilder.me/Resume/fa/36399c51-5e66-41c5-a893-a84e6f0dcec4?template=PreviewDefault](https://cvbuilder.me/Resume/fa/36399c51-5e66-41c5-a893-a84e6f0dcec4?template=PreviewDefault)
+- 📄 Know about my experiences 
 
 - ⚡ Fun fact **I love to learn everything**
 
